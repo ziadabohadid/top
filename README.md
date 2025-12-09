@@ -1,2 +1,0 @@
-# redesigned-umbrella
-تجربه
